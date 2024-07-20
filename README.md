@@ -2,3 +2,4 @@
 - [https://x.com/d4103402](https://x.com/d4103402)
 - [https://www.quora.com/profile/Dang-Trung-22](https://www.quora.com/profile/Dang-Trung-22)
 - [https://d4103402.quora.com/](https://d4103402.quora.com/)
+- [https://medium.com/@d4103402](https://medium.com/@d4103402)
