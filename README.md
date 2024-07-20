@@ -1,0 +1,2 @@
+- [https://www.youtube.com/channel/UC2kYDg1VYF6a3TZu7sGhIPg](https://www.youtube.com/channel/UC2kYDg1VYF6a3TZu7sGhIPg)
+- [https://x.com/d4103402](https://x.com/d4103402)
